@@ -1,2 +1,3 @@
 ﻿This is the description of my repo
-it all for your Glory Glory Gloryyyyyy
+it's all for your Glory Glory Gloryyyyyy
+I got loyalty deep in my vein
